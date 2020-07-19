@@ -1,3 +1,3 @@
 # kaufm
 
-Hello!
+Hello to my test account!
